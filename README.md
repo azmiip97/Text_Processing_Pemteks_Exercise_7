@@ -2,5 +2,5 @@
 CHAPTER 8
 
 Anggota Kelompok:
-Hilman Ifriyanto (25031554136)
+Hilman Fauzi Ifriyanto (25031554136)
 Muhammad Naufal 'Azmii Prasetyo (25031554229)
